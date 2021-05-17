@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pd083104
 - 👀 I’m interested in Chia
-- 🌱 I’m currently learning how to mine Chia
+- 🌱 I’m currently learning how to farm Chia
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
